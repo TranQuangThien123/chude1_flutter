@@ -4,7 +4,7 @@
 > **Giảng viên hướng dẫn**: TS. Nguyễn Duy Nhật Viễn  
 > **Thành viên thực hiện**:
 > - Trần Quang Thiên
-> - Đinh Nhất Hoàn
+> - Nguyễn Đình Hoàn
 
 ---
 
